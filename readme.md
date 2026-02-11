@@ -1,4 +1,4 @@
-# Flexible Learning Spaces (FAB LAB) impact on 1st year university students intrinsic motivation´
+# Flexible Learning Spaces (FAB LAB) impact on 1st year university students intrinsic motivation
 
 Author: António Carlos Gonçalves, PhD Student, Murcia University
 
